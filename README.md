@@ -3,3 +3,4 @@
 
 Isaac Uriel Miranda Higuera
 Iván Daniel Avila Campos
+Jesús Ubaldo Sánchez Rojas
